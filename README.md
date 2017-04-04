@@ -1,1 +1,2 @@
-# Ivanovski
+# Ivanovski Vitali
+# ivanovski.vital@gmail.com
